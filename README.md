@@ -1,5 +1,4 @@
-### Hi there 👋
-good luck
+DDA_BONG 👍👍👍
 <!--
 **g0gogl/g0gogl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
